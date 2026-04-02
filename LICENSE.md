@@ -1,4 +1,4 @@
-
+Why pay for scripts when you can get Free stlth Scripts for dandys world - tele and no-clip for free? Experience the thrill of dandys world with tele and no-clip, all at no cost to you. Safe, effective, and always up-to-date, Free stlth Scripts for dandys world - tele and no-clip is the ultimate gaming companion.
 
 
 ---
